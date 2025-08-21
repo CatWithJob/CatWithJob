@@ -1,16 +1,38 @@
 ## Hi there 👋
+I'm neptuniana - A ! A young male learning about windows
 
-<!--
-**Neptuniana-A/Neptuniana-A** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Met me on winclassic or youtube.
 
-Here are some ideas to get you started:
+-------------------------------------------
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I'm modding windows currently.
+
+I'm learning about plants!
+
+And favorites are: Memes, Video Games, And sleep.
+
+--------------------------------------------
+
+
+## Some social Links
+https://winclassic.net/user/15795
+
+https://www.youtube.com/@CERES_OFFIXAYT19
+
+## Some mods I worked on
+Projects In Dev
+------------------------------
+ProjectMars
+------------------------------
+
+Canceled Mods
+-----------------------------
+
+Neptunian's 10to7
+
+Project8
+
+Project7t010
+-----------------------------
+
+![nyan-cat (1)](https://github.com/user-attachments/assets/fd059e0a-8fb3-43d1-bce8-1bf4a047ff2f)
