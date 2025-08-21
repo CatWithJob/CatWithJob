@@ -1,5 +1,5 @@
 ## Hi there 👋
-I'm neptuniana - A ! A young male learning about windows
+I'm CatWithAJob ! A young male learning about windows
 
 Met me on WinClassic or YouTube.
 
