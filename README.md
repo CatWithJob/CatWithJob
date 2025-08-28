@@ -1,27 +1,9 @@
-## Hi there 👋
-I'm CatWithAJob ! A young male learning about windows
+Hi, I'm Neptunaq! I like modding Windows, etc!
 
-Met me on WinClassic or YouTube.
+I will mostly focus on other stuff.
 
-##
-
-I'm modding Windows currently.
-
-I'm learning about plants!
-
-And favorites are: Memes, Video Games, and sleep.
-
-##
-
-
-## Some social Links
+Some social links, if you want any:
 
 https://winclassic.net/user/15795
 
-https://www.youtube.com/@CERES_OFFIXAYT19
-
-## Projects
-
-**Windows**:
-
-   ProjectMars (Cancelled release)
+https://www.youtube.com/@CERES_OFFIXAYT19 (Remains my old user name)
